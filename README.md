@@ -1,2 +1,0 @@
-# cth
-kntnanime
